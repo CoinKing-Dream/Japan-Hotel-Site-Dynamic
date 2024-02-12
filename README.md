@@ -1,0 +1,1 @@
+# Japan-Hotel-Site-Dynamic
